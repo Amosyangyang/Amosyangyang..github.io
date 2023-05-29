@@ -1,1 +1,1 @@
-# Amosyangyang..github.io
+# Amosyangyang.github.io
